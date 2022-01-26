@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @ShnurD6, but github banned my main account: https://github.com/shnurd6
-- 📫 t.me/shnurd6 <-- for any questions
+- 📫 mssg.me/klimenko-v <-- for any questions
